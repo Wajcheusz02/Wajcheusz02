@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Wajcheusz02
+- Computer science student, my discord is Wajcheusz#3103
